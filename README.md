@@ -1,0 +1,1 @@
+# barcodes-scanner-privacy-policy
